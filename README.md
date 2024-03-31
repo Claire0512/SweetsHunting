@@ -1,5 +1,7 @@
 ## Sweets Hunting 🧁
 
+遊戲連結：https://claire0512.itch.io/sweets-hunting
+
 ### 介紹：
 🎉🍰 歡迎踏入夢幻的甜點王國！ 🍭🍬 
 
